@@ -1,2 +1,2 @@
-# app
-STONKS&amp;BONKS
+# STONKS&BONKS
+Coming soon...
